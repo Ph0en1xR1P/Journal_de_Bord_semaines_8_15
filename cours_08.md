@@ -2,9 +2,9 @@
 ## Retour sur la sortie
 
 ### Oeuvre préférée
-Nommez l'oeuvre que vous avez préférée lors de notre visite. En 2 à 3 lignes, expliquez pourquoi. 
+J'ai trouvé l'exposition de la télévision qui s'allume grâce à des bactéries assez intéressantes parce que ça nous rappèlle qu'on peut faire de l'électricité avec beaucoup de choses.
 
 
 ### Oeuvre la moins appréciée
-Nommez l'oeuvre que vous avez le moins aimé lors de notre visite. En 2 à 3 lignes, expliquez pourquoi. 
+Je n'ai malheureusement pas vraiment aimé le reste de l'exposition, car c'était compliqué de savoir de quoi ça parlait sans avoir les explications. Après je sais que ça c'est surement juste moi qui pense ça, mais n'empêche que lorsque que tu visite une exposition qui n'est pas censée être abstraite, c'est difficile d'aprécier quand tu ne comprends rien.
 
