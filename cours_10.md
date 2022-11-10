@@ -2,7 +2,7 @@
 ## Retour sur la visite de SidLee et PixMob
 
 ### Intérêt
-Laquelle des conférences as-tu préféré et pourquoi? (2 à 3 lignes) 
+Honnêtement, je n'ai pas vraiment aimé les deux conférences. Les sujets ne m'intéressaient pas, donc je vais dire que j'ai préféré SidLee parce que mine de rien leurs bureaux étaient pas mal.
 
 ### Travail
-Te verrais-tu travailler dans une des deux entreprises? Si oui, laquelle et pour quelle raison? Si non, pourquoi? (2 à 3 lignes)
+Je ne me vois travailler dans aucune des deux entreprise tout simplement parce que je ne veux ni travailler dans le domaine de la publicité ni dans la conception de lumières de toutes sortes.
